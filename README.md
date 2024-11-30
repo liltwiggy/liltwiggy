@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @liltwiggy aka Ali Shahmeer
+- 👀 I’m interested in cars.
+- 🌱 I’m currently learning C++ at my university.
+- 💞️ I’m looking to collaborate on small projects.
+- 📫 How to reach me on instagram @alis_hahmeer
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have an eye for timeless aesthetic.
